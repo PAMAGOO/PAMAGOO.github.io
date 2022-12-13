@@ -11,5 +11,5 @@ With a professional support as such, PAMAGOO Gas Spring continues to grow at a r
 
 WE'RE ALWAYS HERE FOR YOU.  
   
-#### Our store on [Amazon.com](https://www.amazon.com/pamagoo)  
+#### Our store on [Amazon.com](https://www.amazon.com/pamagoo?maas=maas_adg_6FF76BF5651D3AE2557CA54F6B4C3AA7_afap_abs&ref_=aa_maas&tag=maas)  
 #### Get in touch with us 📧[PAMAGOO@outlook.com](mailto://pamagoo@outlook.com)
